@@ -1,0 +1,2 @@
+# sugaraa.mn
+Minii Tuhai
